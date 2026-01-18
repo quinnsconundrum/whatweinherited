@@ -5,5 +5,5 @@ author: QF
 
 # Vintage: On Those Who Love (and Hate) the Conn 8D
 
-*By QF*
+*By Quinn Foster*
 
