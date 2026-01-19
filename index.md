@@ -1,5 +1,6 @@
 # Vintage: On Those Who Love (and Hate) the Conn 8D
 *By Quinn Foster*
+January 19, 2026
 
 ## Prelude:
 ## C.G. Conn – A Blogger Before Gawker; A Shit-Talker That Would Make 50 Cent Proud
