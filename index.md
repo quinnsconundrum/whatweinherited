@@ -50,11 +50,10 @@ Phil’s switch wasn’t ground zero for Conn 8D’s death, despite its utmost i
 
 The summer of ‘69 and the five and dime are long gone, and while string players enjoy instrument appreciation, brass players suffer dilapidation and corrosion of our beloved horns. Most of the once-brilliant Conns have been abused by high schoolers and Metropolitan Opera assistant horn players alike. To players who prefer newer instruments and for some reason want a Conn, there are simply no options for new, high-quality Conns.**
 
-##
+## 
 
 <sup>* For non-horn players, triple horns have two change valves and double horns (such as the Conn 8D) have one. The distinction between these horns will be discussed in the single and double horn sections later in the essay.</sup>
 <br><sup>** Depending on who you talk to, there are new alternatives to Conns made in Elkhart. Among these are the “Vintage” 8D from 2008, the “Next Generation” 8D from 2023, and the custom Kruspe wrap by Jim Patterson. The quality of these instruments seem to be a major step up, but their arrival was too little and too late.</sup>
-
 
 ## A Natural Disaster
 
@@ -94,7 +93,8 @@ Hornists say this all the time: No one wrap is better, and no wrap “won.” I�
 
 Kruspe, and by extension, the Conn 8D, is never coming back in the way that Kruspe lovers hoped. Telling a student to purchase a Conn is essentially telling them to buy one horn for college and another one for later—one on which they can actually win *and keep* a job.
 
-##
+## 
+
 <sub>* There are many other interesting French horn wraps which don’t fit neatly into these categories, but Geyer and Kruspe are by far the most widespread in the United States.</sub>
 
 ## More Epic Rap Battles From History: Biggie Vs. Tupac
@@ -141,7 +141,6 @@ I will cop out at this point and say that I truly don’t know which pieces thos
 
 Is the logical conclusion that the Conn is a period instrument, as many a cheeky devil has “joked” about online? I don’t know enough to say. I would prefer to call the Conn a vintage alternative, useful when the time is right and a serious Achilles' heel when the time is not right. 
 
-##
 -QF
 
 
