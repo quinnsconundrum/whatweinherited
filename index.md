@@ -82,8 +82,6 @@ Enter Carl Geyer and Ed Kruspe, creators of the “two” French horn wraps.* Th
 
 That sound you hear is horn players with functioning eyeballs recoiling in anticipation of the most repetitive, bad-faith debate in all of French horn-dom:
 
-(Picture of Geyer and Kruspe wraps)
-
 Which wrap is better, Geyer or Kruspe? Can we finally put this to rest? Who wins? Why do women walk quickly away from me when I’m near them in public?
 
 “Neither wrap is better!! It’s the player, not the equipment!! I went to school in New York!!”
@@ -108,8 +106,6 @@ Biggie and Tupac fandom were framed by their respective geography and their list
 Conn enthusiasts need to recognize that the Conn is beat. There is no modern “main axe” use case for the Conn, and like Biggie vs. Tupac—a fierce and intense battle while the giants were alive–the question of Conn’s relevance has been decided now that the dust has settled and every modern horn builder and their mom are making triples and Geyers. And, my Conn brothers in Christ, your colleagues are annoyed that you keep insisting that the Conn holds its own. Every time Conn lovers talk about how you just can’t beat the tone or that Geyers and triples are missing the characteristic French horn timbre that blends woodwinds and brass, they might as well sign on as co-writers of C.G. Conn’s *Wonder* book. 
 
 The Conn didn’t just shape American horn playing and create the New York sound—it defined what “professional” meant for long enough that we forgot it was a stylistic choice. Conns now function more like a vintage voice than a neutral standard, and the refusal to acknowledge that shift is what keeps the love-hate (and mostly hate) relationship alive. 
-
-(Pictures of 8D sections)
 
 And the Conn sound is utterly unique, I will give it that. Her defenders are sincere. But for her haters, Conns are just too difficult to play. The juice just isn’t worth the squeeze. More metal is used in their construction, making them heavier and less responsive. They are out of tune. They are more difficult in the high range. 
 
