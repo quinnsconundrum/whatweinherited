@@ -49,7 +49,6 @@ To those sipping haterade—the Conn 8D evangelists—the Schmid was hardly more
 Phil’s switch wasn’t ground zero for Conn 8D’s death, despite its utmost importance. Twenty-five years before he jumped ship for the Schmid and its magical second change valve, never to miss a single high note ever again, Conn’s ubiquity took the biggest hit it would ever take. In 1969 and 1970, Conn moved its factory from Elkhart, IN to Abilene, TX. The quality of the new Conns produced in Abilene were, by and large, bong water. Conical valves were replaced with cylindricals, hollow bracings held the pipes together, and C.G. Conn, Ltd. opted for cheaper labor performed by less-experienced factory workers.<sup>6</sup> Depending on who you talk to, the Conn 8D never recovered to its former glory. When pros now look to buy a Conn 8D, one question is paramount: Where was it made? Most want to hear that it was made in Elkhart and that it sat in a closet since then. 
 
 The summer of ‘69 and the five and dime are long gone, and while string players enjoy instrument appreciation, brass players suffer dilapidation and corrosion of our beloved horns. Most of the once-brilliant Conns have been abused by high schoolers and Metropolitan Opera assistant horn players alike. To players who prefer newer instruments and for some reason want a Conn, there are simply no options for new, high-quality Conns.**
-
 ## &nbsp;
 
 <sup>* For non-horn players, triple horns have two change valves and double horns (such as the Conn 8D) have one. The distinction between these horns will be discussed in the single and double horn sections later in the essay.</sup>
@@ -92,7 +91,6 @@ Which wrap is better, Geyer or Kruspe? Can we finally put this to rest? Who wins
 Hornists say this all the time: No one wrap is better, and no wrap “won.” I’ve said this sincerely. But I have bad news for you and me: It’s total bullshit. Geyer won. By a lot. You know it, I know it, everyone knows it. 
 
 Kruspe, and by extension, the Conn 8D, is never coming back in the way that Kruspe lovers hoped. Telling a student to purchase a Conn is essentially telling them to buy one horn for college and another one for later—one on which they can actually win *and keep* a job.
-
 ## &nbsp;
 
 <sub>* There are many other interesting French horn wraps which don’t fit neatly into these categories, but Geyer and Kruspe are by far the most widespread in the United States.</sub>
