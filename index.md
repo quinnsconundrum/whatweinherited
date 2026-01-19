@@ -49,7 +49,9 @@ To those sipping haterade—the Conn 8D evangelists—the Schmid was hardly more
 Phil’s switch wasn’t ground zero for Conn 8D’s death, despite its utmost importance. Twenty-five years before he jumped ship for the Schmid and its magical second change valve, never to miss a single high note ever again, Conn’s ubiquity took the biggest hit it would ever take. In 1969 and 1970, Conn moved its factory from Elkhart, IN to Abilene, TX. The quality of the new Conns produced in Abilene were, by and large, bong water. Conical valves were replaced with cylindricals, hollow bracings held the pipes together, and C.G. Conn, Ltd. opted for cheaper labor performed by less-experienced factory workers.<sup>6</sup> Depending on who you talk to, the Conn 8D never recovered to its former glory. When pros now look to buy a Conn 8D, one question is paramount: Where was it made? Most want to hear that it was made in Elkhart and that it sat in a closet since then. 
 
 The summer of ‘69 and the five and dime are long gone, and while string players enjoy instrument appreciation, brass players suffer dilapidation and corrosion of our beloved horns. Most of the once-brilliant Conns have been abused by high schoolers and Metropolitan Opera assistant horn players alike. To players who prefer newer instruments and for some reason want a Conn, there are simply no options for new, high-quality Conns.**
+
 ##
+
 <sup>* For non-horn players, triple horns have two change valves and double horns (such as the Conn 8D) have one. The distinction between these horns will be discussed in the single and double horn sections later in the essay.</sup>
 <br><sup>** Depending on who you talk to, there are new alternatives to Conns made in Elkhart. Among these are the “Vintage” 8D from 2008, the “Next Generation” 8D from 2023, and the custom Kruspe wrap by Jim Patterson. The quality of these instruments seem to be a major step up, but their arrival was too little and too late.</sup>
 
