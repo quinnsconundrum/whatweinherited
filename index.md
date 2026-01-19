@@ -39,10 +39,6 @@ The Conn 8D had become essential to the New York sound, and Phil was something o
 
 Phil bought one, and most of his section soon followed, saving their Conns for other endeavors like bashing out the windows of Joe Alessi’s PT Cruiser. Soon, throes upon throes of horn players across New York and the rest of the United States would be playing triples (and, as I will detail, horns with a Geyer wrap), and a legion of Conn 8D fanboys would be complaining about it. Phil’s decision profoundly changed the game.
 
-The Conn 8D had become essential to the New York sound, and Phil was something of a standard bearer. Which horn could possibly replace it? Which horn builder would be the lucky wall flower at the dance? Cut to a then little-known horn maker across the pond in Germany, Englebert Schmid, and his full triple French horn.*
-
-Phil bought one, and most of his section soon followed, saving their Conns for other endeavors like bashing out the windows of Joe Alessi’s PT Cruiser. Soon, throes upon throes of horn players across New York and the rest of the United States would be playing triples (and, as I will detail, horns with a Geyer wrap), and a legion of Conn 8D fanboys would be complaining about it. Phil’s decision profoundly changed the game.
-
 Triple horns feature a high F or Eb alto horn, activated by a second change valve, which makes accuracy in the higher ranges of the horn much easier. But that isn’t as important as the philosophical change that triples represented in the nineties. Triples were a different beast, and their sound was not your grandpa’s French horn sound. To the eager adopters, it was direct and sizzly—helpful for matching our feistier brass cousins in the back row and more forgiving at the end of a long concert. 
 
 To those sipping haterade—the Conn 8D evangelists—the Schmid was hardly more than a curly-shaped trombone in timbre. It was edgy and two-dimensional. Most importantly, it was a rebuke of the philosophy and status quo that shaped the New York French horn sound. To the diehard Conn bros, Phil Myers and the Schmid adopters were not just bucking a trend. They were traitors.
