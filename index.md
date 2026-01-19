@@ -79,7 +79,7 @@ Enter Carl Geyer and Ed Kruspe, creators of the “two” French horn wraps.* Th
 
 That sound you hear is horn players with functioning eyeballs recoiling in anticipation of the most repetitive, bad-faith debate in all of French horn-dom:
 
-Which wrap is better, Geyer or Kruspe? Can we finally put this to rest? Who wins? Why do women walk quickly away from me when I’m near them in public?
+## Which wrap is better, Geyer or Kruspe? Can we finally put this to rest? Who wins? Why do women walk quickly away from me when I’m near them in public?
 
 “Neither wrap is better!! It’s the player, not the equipment!! I went to school in New York!!”
 
