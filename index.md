@@ -140,7 +140,7 @@ I will cop out at this point and say that I truly don’t know which pieces thos
 Is the logical conclusion that the Conn is a period instrument, as many a cheeky devil has “joked” about online? I don’t know enough to say. I would prefer to call the Conn a vintage alternative, useful when the time is right and a serious Achilles' heel when the time is not right. 
 
 -QF
-[About](about.md)
+<br><br>[About](about.md)
 
 
 ## Works Cited
