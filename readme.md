@@ -6,7 +6,7 @@ This project is intentionally minimal: a single long-form essay published as a s
 
 ## Status
 
-Draft in progress.
+Final draft.
 
 ## Author
 
